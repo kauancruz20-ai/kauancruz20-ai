@@ -1,2 +1,2 @@
 ##   SLV TROPA 👋
-- ![]([}https://media1.tenor.com/m/W_mmDBZZkDsAAAAC/neymar-rindo.gif](https://media1.tenor.com/m/Qk_sZiDmUQsAAAAd/neymar-jr.gif))
+- ![]https://media1.tenor.com/m/_ROwqsi6P-8AAAAd/yuri22-yuri-brida.gif
